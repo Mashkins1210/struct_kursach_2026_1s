@@ -1,0 +1,1 @@
+# struct_kursach_2026_1s
